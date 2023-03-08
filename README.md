@@ -17,9 +17,7 @@ Here are some ideas to get you started:
 
 ***咕咕咕！***
 
-咕，咕咕咕，咕咕咕咕咕咕咕。
-
-咕咕，咕咕咕？
+咕咕咕咕咕咕：咕咕咕！
 
 *咕咕！*
 
